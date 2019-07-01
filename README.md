@@ -1,1 +1,1 @@
-# git-training2
+#minkyo
