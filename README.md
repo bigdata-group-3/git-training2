@@ -1,1 +1,1 @@
-# git-training2
+# JANG MIN KYO 장민교
