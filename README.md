@@ -1,1 +1,1 @@
-# JANG MIN KYO 장민교
+#minkyo
